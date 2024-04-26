@@ -1,6 +1,6 @@
 # ij.start.canon 
 
-[![ij.start.canon](getstartted.png)](http://canoncom.ijsetup.s3-website-us-west-1.amazonaws.com)
+[![ij.start.canon](getstartted.png)](https://can.printredir.com)
 
 Visit ij.start.canon and find out the best way to download Canon printer drivers. Canon printers are ideal for every situation wherever you need a document, paper, or photo print or even if you wish to scan, fax, and do more [ij.start.canon](https://ij-startcanonij.github.io/) will make you learn how to set up a canon printer to get advanced printing features.
 
